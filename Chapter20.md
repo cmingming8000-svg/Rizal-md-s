@@ -17,7 +17,7 @@ Suddenly the fast running steamer encountered a heavy squall and the door of the
 Upon hearing her remark, Rizal, without saying a word, rose and closed the door, after which he resumed his seat. He then conversed with the German ladies in perfect German. Of course, the German ladies were very much embarrassed, and thereafter they treated Rizal with admiration and respect, despite his brown skin, for he was a cultured gentleman.
 
 ## Arrived in Hong Kong
-Rizal arrived in Hong Kong on November 20, 1891. He was welcomed by the Filipino residents, especially his old friend, Jose Ma. Basa. He established his residence at No. 5 D'Aguilar Street, No. 2 Rednaxola Terrace, where he also opened his medical clinic.
+Rizal arrived in Hong Kong on November 20, 1891. He was welcomed by the Filipino residents, especially his old friend, Jose Ma. Basa. He established his residence at No. 5 D'Aguilar Street and No. 2 Rednaxela Terrace, where he also opened his medical clinic.
 
 On December 1, 1891, he wrote his parents asking their permission to return home. On the same date, his brother-in-law, Manuel T. Hidalgo, sent him a letter, relating the sad news of the "deportation of twenty-five persons from Calamba, including father, Neneng, Sisa, Lucia, Paciano, and the rest of us". Hidalgo also stated in his letter that he was preparing a letter to the Queen Regent of Spain explaining the Calamba situation in order to secure justice. "If the Queen will not listen," he said, "we will write to Queen Victoria of England appealing for protection in the name of humanity..."
 

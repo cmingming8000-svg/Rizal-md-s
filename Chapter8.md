@@ -5,7 +5,7 @@ The bleak winter of 1886 was memorable in the life of Rizal for two reasons: fir
 ## Idea of Writing a Novel on the Philippines
 His reading of Harriet Beecher Stowe's *Uncle Tom's Cabin*, which portrays the brutalities of American slave-owners and the pathetic conditions of the unfortunate Negro slaves, inspired Dr. Rizal to prepare a novel that would depict the miseries of his people under the lash of Spanish tyrants. He was then a student in the Central University of Madrid.
 
-In a reunion of Filipinos in the Paterno residence in Madrid on January 2, 1884, Rizal proposed the writing of a novel about the Philippines by a group of Filipinos. His proposal was unanimously approved by those present, among whom were the Paternos (Pedro, Maximo, and Antonio), Graciano Lopez Jaena, Evisto Aguirre, Eduardo de Lete, Julio Llorente, Melchor Figueroa, and Valentin Ventura.
+In a reunion of Filipinos in the Paterno residence in Madrid on January 2, 1884, Rizal proposed the writing of a novel about the Philippines by a group of Filipinos. His proposal was unanimously approved by those present, among whom were the Paternos (Pedro, Maximo, and Antonio), Graciano Lopez Jaena, Evaristo Aguirre, Eduardo de Lete, Julio Llorente, Melchor Figueroa, and Valentin Ventura.
 
 Unfortunately, Rizal's project did not materialize. The companions who were expected to collaborate on the novel did not contribute anything. The novel was designed to cover all phases of Philippine life. However, almost everybody wanted to write about women. Rizal was disgusted at such flippancy. He was more disgusted to see that his companions, instead of working seriously on the novel, wasted their time gambling or flirting with Spanish *senoritas*.
 
