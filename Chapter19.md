@@ -123,7 +123,7 @@ The issue of which is the superior novel—the *Noli* or the *Fili* is purely ac
 ## Rizal's Unfinished Third Novel
 Even before Lopez Jaena suggested the writing of another novel, Rizal had already in mind to pen a third novel. On September 22, 1891, four days after the *Fili* came off the press, he wrote to Blumentritt: "I am thinking of writing a third novel, a novel in the modern sense of the word, but this time politics will not find much space in it, but ethics will play the principal role. I shall deal mainly with the habits and customs of the Filipinos, and only two Spaniards, the friar curate and the lieutenant of the Guardia Civil will be there. I wish to be there. I wish to be humorous, satirical and witty, to weep and to laugh, to laugh amidst tears, that is, to cry bitterly."
 
-On October 18, 1891, Rizal boarded the steamer *Melbourne* in Marseilles, bound for Hong Kong. During the voyage he began writing the third novel in Tagalog which he intended for Tagalog readers. In Hong Kong he continued it, but for some reason or another he did not finish it.
+On October 12, 1891, Rizal boarded the steamer *Oceana* in Marseilles, bound for Hong Kong. During the voyage he began writing the third novel in Tagalog which he intended for Tagalog readers. In Hong Kong he continued it, but for some reason or another he did not finish it.
 
 The unfinished third novel has no title. It consists of 44 pages of size 21 cm. x 17 cm. in Rizal's handwriting, still in manuscript form. It is preserved in the National Library, Manila.
 
