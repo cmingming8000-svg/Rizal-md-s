@@ -29,14 +29,14 @@ Being a newcomer and knowing little Spanish, Rizal was placed at the bottom of t
 
 After the first week, the frail Calamba boy progressed rapidly. At the end of the month, he became "emperor". He was the brightest pupil in the whole class, and he was awarded a prize. "How pleased I was," he said, "when I won my first prize, a religious picture!" He was proud of it because it was the first prize he ever won at the Ateneo.
 
-To improve his Spanish, Rizal took private lessons in Santa Isabel College during the noon recesses, when other Ateneo students were playing or gossiping. He paid three pesos for those extra Spanish lessons, but it was money well spent.
+To improve his Spanish, Rizal took private lessons in Santa Isabel College during the noon recesses, when other Ateneo students were playing or gossiping. He paid three pesos a month for those extra Spanish lessons, but it was money well spent.
 
-In the second half of his first year in the Ateneo, Rizal did not try hard enough to retain his academic supremacy which he held during the first half of the term. This was because he resented some remarks of his professor. He placed second at the end of the year, although all his grades were still marked "Excellent".
+In the second half of his first year in the Ateneo, Rizal did not try hard enough to retain his academic supremacy which he held during the first half of the term. This was because he resented some remarks of his professor. He placed fifth at the end of the year, although all his grades were still marked "Excellent".
 
 ## Summer Vacation (1873)
 At the end of the school year, in March, 1873, Rizal returned to Calamba for summer vacation.
 
-He did not particularly enjoy his vacation because his mother was in prison. To cheer him up, his sister Neneng (Saturnina) brought him to Tanawan with her. This did not cure his melancholy. Without telling his father, he went to Santa Cruz and visited his mother in prison. He told her of his brilliant grades at the Ateneo. She gladly embraced her favorite son.
+He did not particularly enjoy his vacation because his mother was in prison. To cheer him up, his sister Neneng (Saturnina) brought him to Tanuan with her. This did not cure his melancholy. Without telling his father, he went to Santa Cruz and visited his mother in prison. He told her of his brilliant grades at the Ateneo. She gladly embraced her favorite son.
 
 When the summer vacation ended, Rizal returned to Manila for his second year term in the Ateneo. This time he boarded inside Intramuros at No. 6 Magallanes Street. His landlady was an old widow named Doña Pepay, who had a widowed daughter and four sons.
 
@@ -127,10 +127,8 @@ In 1876, Rizal wrote poems on various topics—religion, education, childhood me
 5. *La Entrada Triunfal de los Reyes Católicos en Granada* (The Triumphal Entry of the Catholic Monarchs into Granada). This poem relates the victorious entry of King Ferdinand and Queen Isabel into Granada, last Moorish stronghold in Spain.
 
 A year later, in 1877, he wrote more poems. It was his last year in the Ateneo. Among the poems written that year were:
-1. *El Heroísmo de Colón* ("The Heroism of Columbus"). This poem praises Columbus, the discoverer of America.
-2. *Colón y Juan II* (Columbus and John II). This poem relates how King John II of Portugal was blinded by riches by his failure to finance the projected expedition of Columbus to the New World.
-3. *Gran Consuelo en la Mayor Desdicha* (Great Solace in Great Misfortune). This is a legend in verse of the tragic life of Columbus.
-4. *Un Diálogo Alusivo a la Despedida de los Colegiales* (A Farewell Dialogue of the Students). This was the last poem written by Rizal in Ateneo; it is a poignant piece of farewell to his classmates.
+1. *A La Juventud Filipina* (To the Filipino Youth). This famous poem, which won him first prize in a literary contest held by the Ateneo, hailed the Filipino youth as "the fair hope of my fatherland" ("la hermosa esperanza de mi patria idolatrada").
+2. *Junto al Pasig* (Beside the Pasig). This is a small allegorical drama or legend in verse, Rizal's first playlet, written for the farewell feast of Father Jose Villaclara, S.J., who was being transferred to Spain. In it, the genius of Rizal appeared for the first time in dramatic form.
 
 ## First Romance of Rizal
 Shortly after his graduation from the Ateneo, Rizal, who was then sixteen years old, had his first romance—"that painful experience which nearly all adolescents." The girl was Segunda Katigbak, a fourteen-year-old Batangueña from Lipa. In Rizal's words, "She was rather short, with eyes that were demurely black at times and languid at others; rosy cheeks and provocative smile that revealed very beautiful teeth; the air of a sylph; her entire self diffused a mysterious distinction."
@@ -143,7 +141,7 @@ Rizal came to know Segunda more intimately during his weekly visits to La Concor
 
 It was apparent that Rizal and Segunda loved each other. There was indeed "a love at first sight". But it was hopeless since the very beginning because Segunda was already engaged to be married to her townmate, Manuel Luz. Rizal, for all his artistic and intellectual prowess, was a shy and timid lover. Segunda had manifested, by intimation and deeds, her affection for him, but he timidly failed to propose. The last time they talked to each other was one Thursday in December, 1877, when the autumn vacation was about to begin. He visited Segunda at La Concordia College to say goodbye because he was going home to Calamba the following day. She, on her part, told him she was also going home one day later. She kept quiet after her brief reply, waiting for him to say something which her heart was clamoring to hear.
 
-But Rizal failed to come up to her expectation. He could only mumble: "Well, good-bye. Anyway—I'll see you when you pass Calamba on your way to Lipa." The next day Rizal passed by steamer in his hometown. His mother did not recognize him at first, due to her failing eyesight. He was saddened to find out about his mother's growing blindness. His sisters gaily welcomed him, telling him about Segunda, for they knew of his romance through Olimpia.
+But Rizal failed to come up to her expectation. He could only mumble: "Well, good-bye. Anyway—I'll see you when you pass Calamba on your way to Lipa." The next day Rizal passed by steamer in his hometown. His mother did not recognize him at first, due to her failing eyesight. He was saddened to learn of his mother's growing blindness. His sisters gaily welcomed him, telling him about Segunda, for they knew of his romance through Olimpia.
 
 That night he demonstrated his skill in fencing to his family. He had a friendly fencing bout with the best fencer in Calamba and bested him.
 
