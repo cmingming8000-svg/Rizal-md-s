@@ -16,7 +16,7 @@ This Rizalian secret mission was likewise disclosed by Paciano in his letter to 
 > It is said here that you will finish the medical course in Barcelona and not at Madrid. To me the principal purpose of your departure is not to finish the course but to study other things of greater usefulness or that to which you are more inclined. So I think, that you ought to study at Madrid."
 
 ## Secret Departure for Spain
-Rizal's departure for Spain was kept secret to avoid detection by the Spanish authorities and the friars. Even his own parents did not know because he knew they, especially his mother, would not allow him to go. Only his older brother (Paciano), his uncle (Antonio Rivera, father of Leonor Rivera), his sisters (Neneng and Lucia), the Valenzuela family (Capitan Juan and Capitana Sunday and their daughter Orang), Pedro Paterno, his compadre Mateo Evangelista, the Ateneo Jesuit Fathers, and some intimate friends, including Chongoy (Jose M. Cecilio), knew of his departure. The kind Jesuit priests gave him letters of recommendation to the members of their Society in Barcelona. He used the name Jose Mercado, a cousin from Biñan.
+Rizal's departure for Spain was kept secret to avoid detection by the Spanish authorities and the friars. Even his own parents did not know because he knew they, especially his mother, would not allow him to go. Only his older brother (Paciano), his uncle (Antonio Rivera, father of Leonor Rivera), his sisters (Neneng and Lucia), the Valenzuela family (Capitan Juan and Capitana Sanday and their daughter Orang), Pedro Paterno, his compadre Mateo Evangelista, the Ateneo Jesuit Fathers, and some intimate friends, including Chongoy (Jose M. Cecilio), knew of his departure. The kind Jesuit priests gave him letters of recommendation to the members of their Society in Barcelona. He used the name Jose Mercado, a cousin from Biñan.
 
 Before his secret departure, he wrote a farewell letter for his beloved parents and another one for his sweetheart Leonor Rivera—both delivered shortly after he sailed away.
 
@@ -123,7 +123,7 @@ In Spain, Rizal came in close contact with prominent Spanish liberal and republi
 
 Rizal was impressed by the way the Spanish Masons openly and freely criticized the government policies and lambasted the friars, which could not be done in the Philippines. In due time, in March 1883, he joined the Masonic lodge Acacia in Madrid. His reason for becoming a mason was to secure Freemasonry's aid in his fight against the friars in the Philippines. Since the friars used the Catholic religion as a shield to entrench themselves in power and wealth and to persecute the Filipino patriots, he intended to utilize Freemasonry as his shield to combat them.
 
-Later he transferred to lodge Solidaridad (Madrid), where he became a Master Mason on November 15, 1890. Still later, on February 15, 1892, he was awarded the diploma as Master Mason by Le Grand Orient de France in Paris.
+Later he transferred to lodge Solidaridad (Madrid), where he became a Master Mason on November 15, 1889. Still later, on February 15, 1892, he was awarded the diploma as Master Mason by Le Grand Orient de France in Paris.
 
 As a Mason, Rizal played a lukewarm role in Freemasonry, unlike M.H. del Pilar, G. Lopez Jaena, and Mariano Ponce who were very active in Masonic affairs. His only Masonic writing was a lecture entitled "Science, Virtue and Labor," which he delivered in 1889 at Lodge Solidaridad, Madrid. 
 
