@@ -1,6 +1,6 @@
 # Chapter 19: El Filibusterismo Published in Ghent (1891)
 
-Days flew swiftly for Rizal in Brussels like flying arrows. Day in and day out, he was busy revising and polishing the manuscript of *El Filibusterismo* so that it could be ready for the press. He had begun writing it in October, 1887, while practising medicine in Calamba. The following year (1888), in London, he made some changes in the plot and corrected some chapters already written. He wrote more chapters in Paris and Madrid, and finished the manuscript in Biarritz, on March 29, 1891. It took him, therefore, three years to write his second novel.
+Days flew swiftly for Rizal in Brussels like flying arrows. Day in and day out, he was busy revising and polishing the manuscript of *El Filibusterismo* so that it could be ready for the press. He had begun writing it in October, 1887, while practising medicine in Calamba. The following year (1888), in London, he made some changes in the plot and corrected some chapters already written. He wrote more chapters in Paris and Madrid, and finished the manuscript in Biarritz, on March 29, 1891. It took him, therefore, three and a half years to write his second novel.
 
 ## Privations in Ghent
 On July 5, 1891, Rizal left Brussels for Ghent, a famous university city in Belgium. His reasons for moving to Ghent were (1) the cost of printing in Ghent was cheaper than in Brussels, and (2) to escape from the enticing attraction of Petite Suzanne. In Ghent, he met two compatriots, Jose Alejandro (from Pampanga) and Edilberto Evangelista (from Manila), both studying engineering in the world-famed University of Ghent.
@@ -14,7 +14,7 @@ Owing to his limited funds, Rizal lived in a cheap boarding house, with Jose Ale
 > The first day, because of my personal pride, I contented myself with my ration. And so with the following day. But on the third day, I told him that my ration was not enough for me. Then he answered: 'You may borrow from your ration for tomorrow'. Through frequent borrowing I ate up all my shares in 15 days, while he rigorously limited himself to his daily ration."
 
 ## The Printing of El Filibusterismo
-Shortly after his arrival in Ghent, Rizal searched for a printing shop that could give him the lowest quotation for the publication of his novel. At last, he did find a publisher—F. MEYER-VAN LOO PRESS, No. 66 Viaanderen Street—who was willing to print his book on installment basis. He pawned his jewels in order to pay the down payment and the early partial payments during the printing of the novel.
+Shortly after his arrival in Ghent, Rizal searched for a printing shop that could give him the lowest quotation for the publication of his novel. At last, he did find a publisher—F. MEYER-VAN LOO PRESS, No. 66 Vlaanderen Street—who was willing to print his book on installment basis. He pawned his jewels in order to pay the down payment and the early partial payments during the printing of the novel.
 
 Meanwhile, as the printing was going on, Rizal became desperate because his funds were running low and the money he expected from his friends did not arrive. He had received some money from Basa and P200 from Rodriguez Arias, for the copies of Morga's *Sucesos* sold in Manila. But these funds were also used up, and much more were needed to pay the printer. Writing to Basa from Ghent on July, 1891, Rizal said: "I have already pawned all my jewels, I live in a small room, I eat in the cheapest restaurant in order to economize and be able to publish my book; soon I will have to stop its publication if no money comes...."
 
@@ -34,7 +34,7 @@ Filipino patriots in foreign lands and in the Philippines praised the novel to t
 
 The liberal Madrid newspaper, *El Nuevo Regimen*, signaled the novel in its issues of October, 1891.
 
-Practically all copies of the first edition (Ghent edition) of *El Filibusterismo* were placed in wooden boxes and shipped to Hong Kong, but almost all the boxes were confiscated and the books lost. So it came to pass that the book immediately became rare, and the few available Ghent copies were sold at very high prices, reaching as high as P100 pesetas per copy.
+Practically all copies of the first edition (Ghent edition) of *El Filibusterismo* were placed in wooden boxes and shipped to Hong Kong, but almost all the boxes were confiscated and the books lost. So it came to pass that the book immediately became rare, and the few available Ghent copies were sold at very high prices, reaching as high as 100 pesetas per copy.
 
 ## Dedication to Gom-Bur-Za
 Evidently, Rizal in all the years of his bitter travels and labors in foreign lands, had not forgotten the martyrdom of Fathers Gomez, Burgos, and Zamora which Paciano related to him when he was a mere lad in Calamba. He dedicated *El Filibusterismo* to them. His dedication read as follows:
@@ -123,7 +123,7 @@ The issue of which is the superior novel—the *Noli* or the *Fili* is purely ac
 ## Rizal's Unfinished Third Novel
 Even before Lopez Jaena suggested the writing of another novel, Rizal had already in mind to pen a third novel. On September 22, 1891, four days after the *Fili* came off the press, he wrote to Blumentritt: "I am thinking of writing a third novel, a novel in the modern sense of the word, but this time politics will not find much space in it, but ethics will play the principal role. I shall deal mainly with the habits and customs of the Filipinos, and only two Spaniards, the friar curate and the lieutenant of the Guardia Civil will be there. I wish to be there. I wish to be humorous, satirical and witty, to weep and to laugh, to laugh amidst tears, that is, to cry bitterly."
 
-On October 18, 1891, Rizal boarded the steamer *Melbourne* in Marseilles, bound for Hong Kong. During the voyage he began writing the third novel in Tagalog which he intended for Tagalog readers. In Hong Kong he continued it, but for some reason or another he did not finish it.
+On October 12, 1891, Rizal boarded the steamer *Oceana* in Marseilles, bound for Hong Kong. During the voyage he began writing the third novel in Tagalog which he intended for Tagalog readers. In Hong Kong he continued it, but for some reason or another he did not finish it.
 
 The unfinished third novel has no title. It consists of 44 pages of size 21 cm. x 17 cm. in Rizal's handwriting, still in manuscript form. It is preserved in the National Library, Manila.
 

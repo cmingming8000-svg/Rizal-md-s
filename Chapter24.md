@@ -36,7 +36,7 @@ Two kinds of evidence were presented against Rizal, namely documentary and testi
 2. A letter of Rizal to his family, dated Madrid, August 20, 1890, stating that the deportations are good for they will encourage the people to hate tyranny.
 3. A letter from Marcelo H. del Pilar to Deodato Arellano, dated Madrid, January 7, 1889, implicating Rizal in the Propaganda campaign in Spain.
 4. A poem entitled *Kundiman*, allegedly written by Rizal in Manila on September 12, 1891.
-5. A letter of Carlos Oliver to an unidentified person, dated Barcelona, September 18, 1891, describing Rizal as the man to free the Philippines from Spanish oppression.
+5. A letter of Vicente (supposedly written by Carlos Oliver) to an unidentified person, dated Barcelona, September 18, 1891, describing Rizal as the man to free the Philippines from Spanish oppression.
 6. A Masonic document, dated Manila, February 9, 1892, honoring Rizal for his patriotic services.
 7. A letter signed Dimasalang (Rizal's pseudonym) to Tenazas (Juan Zulueta's pseudonym), dated Hong Kong, May 24, 1892, stating that he was preparing a safe refuge for Filipinos who may be persecuted by the Spanish authorities.
 8. A letter of Dimasalang to an unidentified committee, dated Hong Kong, June 1, 1892, soliciting the aid of the committee in the "patriotic work".
@@ -44,7 +44,7 @@ Two kinds of evidence were presented against Rizal, namely documentary and testi
 10. A letter of Ildefonso Laurel to Rizal, dated Manila, September 3, 1892, saying that the Filipino people look up to him (Rizal) as their savior.
 11. A letter of Ildefonso Laurel to Rizal, dated Manila, November 17, 1893, informing an unidentified correspondent of the arrest and banishment of Doroteo Cortes and Ambrosio Salvador.
 12. A letter of Marcelo H. del Pilar to Don Julian A. Tenazas (Juan Zulueta), dated Madrid, June 1, 1893, recommending the establishment of a special organization, independent of Masonry, to help the cause of the Filipino people.
-13. Transcript of a speech of Pingkian (Emilio Jacinto), in a reunion of the Katipunan on July 23, 1893, in which the following cry was uttered: "Long live the Philippines! Long live Liberty! Long live Doctor Rizal! Unity!"
+13. Transcript of a speech of Pingkian (Emilio Jacinto), in a reunion of the Katipunan on July 23, 1896, in which the following cry was uttered: "Long live the Philippines! Long live Liberty! Long live Doctor Rizal! Unity!"
 14. Transcript of a speech of Tik-Tik (Jose Turiano Santiago) in the same Katipunan reunion, wherein the katipuneros shouted: "Long live the eminent Doctor Rizal! Death to the oppressor nation!"
 15. A poem by Laong Laan (Rizal), entitled *A Talisay*, in which the author makes the Dapitan schoolboys sing that they know how to fight for their rights.
 
@@ -69,7 +69,7 @@ On December 11, the information of charges was formally read to Rizal in his pri
 Dominguez forwarded the papers of the Rizal case to Malacañang Palace on December 13, the same day when General Camilo G. de Polavieja, with the help of the powerful Dominican friars, became Governor General of the Philippines, succeeding General Blanco. The withdrawal of Blanco from the gubernatorial office sealed Rizal's fate, for he was more humane in character than the ruthless Polavieja and, moreover, he firmly believed that Rizal was not a traitor to Spain. Had he remained longer in office, Rizal would not have been executed. But this was one of those intriguing "ifs" in history, of which man has no control because the destiny of men and nations is in accordance with God's divine plan.
 
 ## Rizal's Manifesto to His People
-On December 15, Rizal wrote a manifesto to his people appealing to them to stop the unnecessary shedding of blood and to achieve their liberties by means of education and industry.
+On December 14, Rizal wrote a manifesto to his people appealing to them to stop the unnecessary shedding of blood and to achieve their liberties by means of education and industry.
 
 This manifesto, written in his prison cell at Fort Santiago, runs as follows:
 
@@ -91,7 +91,7 @@ December 25, 1896 was Christmas. On that day all Christendom joyously celebrated
 ## The Trial of Rizal
 The trial of Rizal was an eloquent proof of Spanish injustice and misrule. More than a farce, it was patently a mistrial. Rizal, a civilian, was tried by a military court composed of alien military officers. His case was prejudged: he was considered guilty before the actual trial. The military court met not to give him justice, but to accuse and condemn him. It accepted all charges and testimonies against him, and ignored all arguments and proofs in his favor. Moreover, Rizal was not given the right (which any accused is entitled to have in a real court of justice) to face the witnesses against him in open court.
 
-At 8:00 a.m., December 26, 1896, the court-martial of Rizal started in the military building called *Cuartel de España*. Seated behind a long table on an elevated dais were the seven members of the military court, dressed in their respective army uniforms, as follows: Lt. Col. Jose Togores Arjona (president), Capt. Ricardo Munoz Arias, Capt. Manuel Reguera, Capt. Santiago Izquierdo Osorio, Capt. Braulio Rodriguez Nunez, Capt. Manuel Diaz Escribano, and Capt. Fermin Perez Rodriguez. Also present at the courtroom were Dr. Rizal (the accused), Lt. Taviel de Andrade (his defense counsel), Capt. Rafael Dominguez (Judge Advocate), Lt. Enrique de Alcocer (Prosecuting Attorney), and the spectators. Among the spectators were Josephine Bracken, some newspapermen, and many Spaniards.
+At 8:00 a.m., December 26, 1896, the court-martial of Rizal started in the military building called *Cuartel de España*. Seated behind a long table on an elevated dais were the seven members of the military court, dressed in their respective army uniforms, as follows: Lt. Col. Jose Togores Arjona (president), Capt. Ricardo Munoz Arias, Capt. Manuel Reguera, Capt. Santiago Izquierdo Osorio, Capt. Braulio Rodriguez Nunez, Capt. Manuel Diaz Escribano, and Capt. Fermin Perez Rodriguez. Also present at the courtroom were Dr. Rizal (the accused), Lt. Taviel de Andrade (his defense counsel), Capt. Francisco delos Reyes (Judge Advocate), Lt. Enrique de Alcocer (Prosecuting Attorney), and the spectators. Among the spectators were Josephine Bracken, some newspapermen, and many Spaniards.
 
 Rizal sat on a bench between two soldiers. His arms were tied behind, elbow to elbow, like a common felon. He was dressed in a black woolen suit with a white shirt and black tie. He was calm and dignified in appearance.
 

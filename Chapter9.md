@@ -9,7 +9,7 @@ Rizal and Viola tarried for some time in Dresden. Their visit coincided with the
 
 While strolling at the scene of the Floral Exposition they met Dr. Jagor, hearing of their plan to visit Leitmeritz (in Bohemia, Czechoslovakia) in order to see Blumentritt. At the time, Dr. Jagor advised them to wire Blumentritt of their coming because the old professor was of a nervous disposition and he might suffer a shock at their sudden visit.
 
-Teschen (now Decin, Czechoslovakia) was their next stopover after leaving Dresden. Rizal and Viola sent Blumentritt a wire as per suggestion of Dr. Jagor.
+Teschen (now Tesin, Czech Republic)/Silesia was their next stopover after leaving Dresden. Rizal and Viola sent Blumentritt a wire as per suggestion of Dr. Jagor.
 
 ## First Meeting with Blumentritt
 At 1:30 p.m. of May 13, 1887, the train, with Rizal and Viola on board, arrived at the railroad station of Leitmeritz, Bohemia. Professor Blumentritt, who had received their wire, was at the station. He was carrying a newspaper, so that he could identify his Filipino friend. He joyfully received Rizal and Viola.
@@ -19,7 +19,7 @@ For the first time, the two great scholars—Rizal and Blumentritt—who came to
 Professor Blumentritt, the genial host, helped Rizal and Viola get a room at Hotel Krebs, after which he brought them home and introduced them to his wife and family. The two Filipino tourists spent many pleasant hours at the home of their kind host. They stayed in Leitmeritz from May 13 to May 16, 1887.
 
 ## Beautiful Memories of Leitmeritz
-Rizal had beautiful memories of his visit to Leitmeritz. He enjoyed the warm hospitality of the Blumentritt family. The professor's wife, Lena, was a good cook, and she prepared special Austrian dishes which Rizal liked very much. His children were Dolorosa (called Dora or Dorita by Rizal), Conrad, and Fritz.
+Rizal had beautiful memories of his visit to Leitmeritz. He enjoyed the warm hospitality of the Blumentritt family. The professor's wife, Lena, was a good cook, and she prepared special Austrian dishes which Rizal liked very much. His children were Dolores (called Dora or Dorita by Rizal), Conrad, and Fritz.
 
 Blumentritt proved to be a great tourist guide as well as a hospitable host. He showed the scenic and historical spots of Leitmeritz to his visitors. One afternoon he invited them to his beer garden where the best beer of Bohemia was served. At the beer table there was a lively discussion among the drinkers about the advisability of having the railroad pass through a neighboring town. One of the men in the group was the burgomaster (town mayor) of that town. Blumentritt knew the burgomaster, so that he approached the party and delightfully introduced his two Filipino friends. Rizal talked in fluent German, for which reason the burgomaster and his friends were amazed. The burgomaster asked Rizal how long it took him to learn German. And Rizal replied: "Eleven months, Sir." The burgomaster was further amazed, and in great admiration, he lauded the "privileged talent" of Rizal. Blumentritt embraced Rizal, telling him that few Germans could speak well their own language as Rizal could.
 
