@@ -39,7 +39,7 @@ Some friends of Rizal who were in Europe gave him moral and substantial aid in h
 
 Rizal possessed the qualities of a great ophthalmic surgeon. Had he devoted his lifetime to the practice of medicine he would have become one of Asia's eminent ophthalmologists. In the words of Dr. Geminiano de Ocampo, distinguished Filipino ophthalmologist:
 
-> "He (Rizal) had all the qualities that would make an ideal opththalmic surgeon—a keen and analytical intellect, lightness of touch and artistry of a painter, courage and imperturbability, a broad and deep knowledge of medicine and ophthalmology, and last but not least, he had been properly and adequately trained by master ophthalmic surgeons."
+> "He (Rizal) had all the qualities that would make an ideal ophthalmic surgeon—a keen and analytical intellect, lightness of touch and artistry of a painter, courage and imperturbability, a broad and deep knowledge of medicine and ophthalmology, and last but not least, he had been properly and adequately trained by master ophthalmic surgeons."
 
 ## Borneo Colonization Project
 In the face of the bleak outlook of the Calamba folks under Governor Valeriano Weyler's terroristic regime, Rizal conceived the establishment of a Filipino colony in North Borneo (Sabah). He planned to move the landless Filipino families to that rich British-owned island and carve out of its virgin wildness a "New Calamba".
