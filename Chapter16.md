@@ -13,7 +13,7 @@ During his sojourn in Brussels, Rizal wrote articles for *La Solidaridad* in def
 2. "La Verdad Para Todos" (The Truth For All), May 31, 1890. Rizal's defense against the Spanish charges that the native local officials were ignorant and depraved.
 3. "Vicente Barrantes, Fraile Tagalo," June 15, 1890. In this article, Rizal exposed Barrantes' ignorance on the Tagalog theatrical art.
 4. "Una Profanacion" (A Profanation), July 11, 1890. A bitter attack against the friars for denying Christian burial to Mariano Herbosa in Calamba because he was a brother-in-law of Rizal. Herbosa, husband of Lucia, died of cholera on May 23, 1889.
-5. "Verdades Nuevas" (New Truths), July 31, 1890. A reply to Vicente Bello's Sanche's letter published in *La Patria*, Madrid newspaper, on July 4, 1890, which asserted that the granting of reforms in the Philippines would ruin the "sacred and maternal rule" of the friars.
+5. "Verdades Nuevas" (New Truths), July 31, 1890. A reply to Vicente Bello Sanchez's letter published in *La Patria*, Madrid newspaper, on July 4, 1890, which asserted that the granting of reforms in the Philippines would ruin the "sacred and maternal rule" of the friars.
 6. "Crueldad" (Cruelty), August 15, 1890. A brilliant defense of Blumentritt from the slanderous attacks of his enemies.
 7. "Diferencias" (Differences), September 15, 1890. A reply to a biased article entitled "Old Truths" published in *La Patria* on August 14, 1890, which ridiculed those Filipinos who asked for reforms.
 8. "Inconsecuencias" (Inconsistencies), November 30, 1890. A defense of Antonio Luna against the attack of Pablo Mira y Deos in the Barcelona newspaper *El Pueblo Soberano*.

@@ -193,7 +193,7 @@ Rizal found Mindanao a rich virgin field for collecting specimens. With his *bar
 
 During his four-year exile in Dapitan, Rizal built up a rich collection of conchology which consisted of 346 shells representing 203 species.
 
-He discovered some rare specimens which were named in his honor by the scientists. Among these were *Draco rizali* (a flying dragon), *Apofonia rizali* (a small beetle), and *Rhacophorus rizali* (a rare frog).
+He discovered some rare specimens which were named in his honor by the scientists. Among these were *Draco rizali* (a flying lizard), *Apophania rizali* (a small beetle), and *Rhacophorus rizali* (a rare frog). He also discovered a rare kind of fly, which was called *Hemeroplanes ornata*, and a species of orchid, *Rhododendron rizali*.
 
 Rizal also conducted anthropological, ethnographical, archaeological, geological, and geographical studies, as revealed by his voluminous correspondence with his scientist friends in Europe. There was no limit to his scientific versatility.
 

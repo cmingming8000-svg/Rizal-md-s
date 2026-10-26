@@ -26,7 +26,7 @@ Rizal explained the objectives of the Liga Filipina, a civic league of Filipinos
 
 The officers of the new league were elected, as follows: Ambrosio Salvador, president; Deodato Arellano, secretary; Bonifacio Arevalo, treasurer; and Agustin de la Rosa, fiscal.
 
-## Consultation of the Liga Filipina
+## Constitution of the Liga Filipina
 The aims of the Liga Filipina, as embodied in its Constitution, were the following:
 1. To unite the whole archipelago into one compact and homogeneous body.
 2. Mutual protection in every want and necessity.
