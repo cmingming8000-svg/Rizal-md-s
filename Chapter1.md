@@ -7,21 +7,21 @@ Jose Rizal was born on the moonlit night of Wednesday, June 19, 1861, in the lak
 
 > "I was born in Calamba on 19 June, 1861, between eleven and midnight a few days before full moon. It was a Wednesday and my coming out in this vale of tears would have cost my mother her life had she not vowed to the Virgin of Antipolo to take me to her sanctuary by way of pilgrimage."
 
-He was baptized in the Calamba church on June 22, aged three days old, by the parish priest Father Rufino Collantes, who was a native of Calamba and close friend of his father Pedro Casanas. His godfather (*ninong*) was Colonel Juancho, a relative of the Christian saint San Jose (St. Joseph). During the christening ceremony Father Collantes, impressed by the baby's big head, told the members of the family who were present: "Take good care of this child, for someday he will become a great man." His words proved to be prophetic, as confirmed by subsequent events.
+He was baptized in the Calamba church on June 22, aged three days old, by the parish priest Father Rufino Collantes, a native of Calamba who was a close friend of his father, Francisco Mercado. His godfather (*ninong*) was Father Pedro Casanas, a prominent landowner of Biñan and a dear friend of the family. During the christening ceremony Father Collantes, impressed by the baby's big head, told the members of the family who were present: "Take good care of this child, for someday he will become a great man." His words proved to be prophetic, as confirmed by subsequent events.
 
 ## Rizal's Parents
 Jose Rizal was the seventh of the eleven children of Francisco Mercado Rizal and Teodora Alonso Realonda. 
 
 The hero's father, **Francisco (1818-1898)**, was born in Biñan, Laguna on May 11, 1818. He studied Philosophy at the College of San Jose in Manila. In early manhood, following his parents' death, he moved to Calamba and became a tenant-farmer of the Dominican-owned hacienda. He was a hardy and independent-minded man, who talked less and worked more, and was strong in body and vibrant in spirit. He died in Manila on January 5, 1898, at the age of 80. In his student memoirs, Rizal affectionately called him "a model of fathers."
 
-**Doña Teodora (1827-1911)**, the hero's mother, was born in Manila on November 8, 1826 and was educated at the College of Santa Rosa, a well-known college for girls in the city. She was a remarkable woman, possessing refined culture, literary talent, business ability, and the virtues of a Spartan. Rizal lovingly said of her: 
+**Doña Teodora (1827-1911)**, the hero's mother, was born in Manila on November 8, 1827 and was educated at the College of Santa Rosa, a well-known college for girls in the city. She was a remarkable woman, possessing refined culture, literary talent, business ability, and the virtues of a Spartan. Rizal lovingly said of her: 
 
 > "My mother is a woman of more than ordinary culture; she knows literature and speaks Spanish better than I. She corrected my poems and gave me good advice when I was studying them. She is a mathematician and has read many books." 
 
 ## The Rizal Children
 God blessed the marriage of Francisco Mercado Rizal and Teodora Alonso Realonda with eleven children, five boys and six girls. These children were as follows:
 
-1. **Saturnina (1850-1913)** – Eldest of the Rizal children, nicknamed *Neneng*; she married Manuel T. Hidalgo of Tanawan, Batangas.
+1. **Saturnina (1850-1913)** – Eldest of the Rizal children, nicknamed *Neneng*; she married Manuel T. Hidalgo of Tanuan, Batangas.
 2. **Paciano (1851-1930)** – Older brother, nicknamed *Isang*. He was the closest confidant of Rizal. After his younger brother's execution he joined the Philippine Revolution and became a combat general. 
 3. **Narcisa (1852-1939)** – Her pet name was *Sisa*, and she married Antonio Lopez, a school teacher of Morong.
 4. **Olimpia (1855-1887)** – Nicknamed *Ypia*, she married Silvestre Ubaldo, a telegraph operator from Manila.
