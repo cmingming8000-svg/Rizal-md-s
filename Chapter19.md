@@ -14,7 +14,7 @@ Owing to his limited funds, Rizal lived in a cheap boarding house, with Jose Ale
 > The first day, because of my personal pride, I contented myself with my ration. And so with the following day. But on the third day, I told him that my ration was not enough for me. Then he answered: 'You may borrow from your ration for tomorrow'. Through frequent borrowing I ate up all my shares in 15 days, while he rigorously limited himself to his daily ration."
 
 ## The Printing of El Filibusterismo
-Shortly after his arrival in Ghent, Rizal searched for a printing shop that could give him the lowest quotation for the publication of his novel. At last, he did find a publisher—F. MEYER-VAN LOO PRESS, No. 66 Viaanderen Street—who was willing to print his book on installment basis. He pawned his jewels in order to pay the down payment and the early partial payments during the printing of the novel.
+Shortly after his arrival in Ghent, Rizal searched for a printing shop that could give him the lowest quotation for the publication of his novel. At last, he did find a publisher—F. MEYER-VAN LOO PRESS, No. 66 Vlaanderen Street—who was willing to print his book on installment basis. He pawned his jewels in order to pay the down payment and the early partial payments during the printing of the novel.
 
 Meanwhile, as the printing was going on, Rizal became desperate because his funds were running low and the money he expected from his friends did not arrive. He had received some money from Basa and P200 from Rodriguez Arias, for the copies of Morga's *Sucesos* sold in Manila. But these funds were also used up, and much more were needed to pay the printer. Writing to Basa from Ghent on July, 1891, Rizal said: "I have already pawned all my jewels, I live in a small room, I eat in the cheapest restaurant in order to economize and be able to publish my book; soon I will have to stop its publication if no money comes...."
 
@@ -34,7 +34,7 @@ Filipino patriots in foreign lands and in the Philippines praised the novel to t
 
 The liberal Madrid newspaper, *El Nuevo Regimen*, signaled the novel in its issues of October, 1891.
 
-Practically all copies of the first edition (Ghent edition) of *El Filibusterismo* were placed in wooden boxes and shipped to Hong Kong, but almost all the boxes were confiscated and the books lost. So it came to pass that the book immediately became rare, and the few available Ghent copies were sold at very high prices, reaching as high as P100 pesetas per copy.
+Practically all copies of the first edition (Ghent edition) of *El Filibusterismo* were placed in wooden boxes and shipped to Hong Kong, but almost all the boxes were confiscated and the books lost. So it came to pass that the book immediately became rare, and the few available Ghent copies were sold at very high prices, reaching as high as 100 pesetas per copy.
 
 ## Dedication to Gom-Bur-Za
 Evidently, Rizal in all the years of his bitter travels and labors in foreign lands, had not forgotten the martyrdom of Fathers Gomez, Burgos, and Zamora which Paciano related to him when he was a mere lad in Calamba. He dedicated *El Filibusterismo* to them. His dedication read as follows:
