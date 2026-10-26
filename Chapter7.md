@@ -3,7 +3,7 @@
 After completing his studies in Madrid, Rizal went to Paris and Germany in order to specialize in ophthalmology. He particularly chose this branch of medicine because he wanted to cure his mother's eye ailment. He served as assistant to the famous oculists of Europe. He also continued his travels and observations of European life and customs, government and laws in Paris, Heidelberg, Leipzig, and Berlin. In Berlin, capital of then unified Germany, he met and befriended several top German scientists—Dr. Feodor Jagor, Dr. Adolph B. Meyer, Dr. Hans Meyer, and Dr. Rudolf Virchow. His merits as a scientist were recognized by the eminent scientists of Europe.
 
 ## In Gay Paris (1885-1886)
-Shortly after terminating his studies at the Central University of Madrid, Rizal, who was then 24 years old and already a physician, went to Paris in order to acquire more knowledge in ophthalmology. On his way to Paris, he stopped at Barcelona to visit his friend, Maximo Viola, a medical student and a member of a rich family of San Miguel, Bulacan. He stayed for a week, during which time he befriended Senor Eusebio Corominas, editor of the newspaper *La Publicidad* and made a crayon sketch of Don Miguel Morayta, owner of *La Publicidad* and a statesman. He gave Editor Corominas an article on the Carolines Question, then a controversial issue, for publication.
+Shortly after terminating his studies at the Central University of Madrid, Rizal, who was then 24 years old and already a physician, went to Paris in order to acquire more knowledge in ophthalmology. On his way to Paris, he stopped at Barcelona for a week to visit his friend, Maximo Viola, a medical student and a member of a rich family of San Miguel, Bulacan. During this stopover he befriended Senor Eusebio Corominas, editor of the newspaper *La Gaceta* and made a crayon sketch of Don Miguel Morayta, owner of *La Publicidad* and a statesman. He gave Editor Corominas an article on the Carolines Question, then a controversial issue, for publication.
 
 In November 1885, Rizal was living in Paris, where he sojourned for about four months. He worked as an assistant to Dr. Louis de Weckert (1852-1906), leading French ophthalmologist, from November 1885 to February 1886. He rapidly improved his knowledge of ophthalmology, as revealed by his letter to his parents on January 1, 1886: "With respect to the study of the ailments of the eyes," he wrote, "I am doing well. I know now how to perform all the operations; I only need to know what is going on inside the eye, which requires much practice."
 
@@ -53,11 +53,11 @@ After writing "To the Flowers of Heidelberg," Rizal spent a three-month summer v
 So delightful was his stay at Pastor Ullmer's home that Rizal felt the pangs of sadness when he ended his sojourn on June 25, 1886. He returned to Heidelberg, carrying with him beautiful memories of the Ullmer friendship and hospitality. 
 
 ## First Letter to Blumentritt
-On July 31, 1886, Rizal wrote his first letter in German (which he had improved after his stay with the Ullmers) to Professor Ferdinand Blumentritt, Director of the Ateneo of Leitmeritz, Austria. He had heard of this Austrian ethnologist and his interest in Philippine languages. In his letter, Rizal said:
+On July 31, 1886, Rizal wrote his first letter in German (which he had improved after his stay with the Ullmers) to Professor Ferdinand Blumentritt, a professor at the Gymnasium of Leitmeritz, Austria. He had heard of this Austrian ethnologist and his interest in Philippine languages. In his letter, Rizal said:
 
 > "I have heard that you are studying our language, and that you had already published some words. Permit me to send you a valuable book written by my countryman in our language. The Spanish version is mediocre, because the author is only a modest writer but the Tagalog part is good, and it reproduces the language as spoken in our province."
 
-With this letter, Rizal sent the book which he mentioned. That book was entitled *Aritmetica* (Arithmetic) and was published in two languages—Spanish and Tagalog—by the University of Santo Tomas Press in Manila. The author was Rufino Rodrigo Hernandez, a native of Santa Cruz, Laguna.
+With this letter, Rizal sent the book which he mentioned. That book was entitled *Aritmetica* (Arithmetic) and was published in two languages—Spanish and Tagalog—by the University of Santo Tomas Press in Manila. The author was Rufino Rodriguez Hernandez, a native of Santa Cruz, Laguna.
 
 Rizal's letter from Heidelberg impressed Blumentritt, who reciprocated by sending Rizal a letter and two books. It marked the beginning of their long and frequent correspondence, also of their friendship that lasted all their lives. Blumentritt, the Austrian, became the best friend of Rizal, the Filipino.
 
@@ -65,7 +65,7 @@ Rizal's letter from Heidelberg impressed Blumentritt, who reciprocated by sendin
 Rizal was fortunate to be sojourning in Heidelberg when the famous University of Heidelberg held its fifth centenary celebration in August, 1886. It was three days before his departure and he was sad because he had come to love the beautiful city and its hospitable people.
 
 ## In Leipzig and Dresden
-On August 9, 1886, three days after the fifth centenary celebration of the University of Heidelberg, Rizal left the city. He boarded a train, visited various cities of Germany, and arrived in Leipzig on August 14, 1886. He attended some lectures at the University of Leipzig on history and psychology. He befriended Professor Friedrich Ratzel, a famous German historian, and Dr. Hans Meyer, German anthropologist.
+On August 9, 1886, three days after the fifth centenary celebration of the University of Heidelberg, Rizal left the city. He boarded a train, visited various cities of Germany, and arrived in Leipzig on August 14, 1886. He attended some lectures at the University of Leipzig on history and psychology. He befriended Professor Friedrich Ratzel, a famous German geographer and anthropologist, and Dr. Adolph B. Meyer, German ethnologist.
 
 In Leipzig, Rizal translated Schiller's *William Tell* from German into Tagalog so that Filipinos might know the story of that champion of Swiss independence. Later, he also translated into Tagalog for his nephews and nieces Hans Christian Andersen's *Fairy Tales*.
 
